@@ -18,7 +18,7 @@ To make things a bit more fun, each TA added a link to song/video we would like 
 Tell us a bit about yourselves! 
 
 	- First student's name:basel
-	- Favorite singer:
+	- Favorite singer:Travis Scott
 	- Favorite song:
 	- Desirable grade in Matam:
 	- which TA's song you liked the most:
